@@ -4,7 +4,7 @@
 
 <p align="center"> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/pngs/flowers/p13 height="300" width="350"> </p>
 
-   <p align="center">   𝘩𝘺𝘱𝘦𝘳𝘴𝘦𝘹𝘶𝘢𝘭 𝘨𝘢𝘺 𝘯𝘣 𝘪 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘣𝘧 𝘢 𝘭𝘰𝘵 𝘣𝘵𝘸.. 𝘴𝘪𝘨𝘯 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 </p>
+   <p align="center">   𝘩𝘺𝘱𝘦𝘳𝘴𝘦𝘹𝘶𝘢𝘭 𝘨𝘢𝘺 𝘯𝘣 𝘪 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘣𝘧 𝘢 𝘭𝘰𝘵 𝘣𝘵𝘸.. </p>
 
 <p align="center"> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/pixels/red%20pixel/red11> </p>
 <p align="center"> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/blinkies/orange/o4> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/blinkies/red/r34> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/blinkies/orange/o7> </p>
