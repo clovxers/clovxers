@@ -1,6 +1,6 @@
 <p align="center"> <img src=https://watermelon.crd.co/assets/images/gallery16/c635a734.gif?v=e2e5e274> </p>
 
-<p align="center"> 𝘩𝘪 𝘪𝘮 𝘳𝘶𝘣𝘺/𝘱𝘢𝘵𝘳𝘪𝘤𝘬 </p> <div>
+<p align="center"> 𝘩𝘪 𝘪𝘮 𝘱𝘢𝘳𝘵𝘺/𝘱𝘢𝘵𝘳𝘪𝘤𝘬 </p> <div>
 
 <p align="center"> <img src=https://file.garden/Zy7nsVKnFHAuCMhW/pngs/flowers/p32 height="400" width="500"> </p>
 
